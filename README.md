@@ -12,7 +12,7 @@ Shintoism<br>
 Jewism<br>
 <br>
 Bad Religions:<br>
-Pastafarianism (spaghetti) <br>
+Pastafarianism (spaghet) <br>
 Hinduism<br>
 Christianity<br>
 Buddhism<br>
