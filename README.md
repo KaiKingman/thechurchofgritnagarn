@@ -12,6 +12,7 @@ Shintoism<br>
 Jewism<br>
 <br>
 Bad Religions:<br>
+Pastafarianism <br>
 Hinduism<br>
 Christianity<br>
 Buddhism<br>
