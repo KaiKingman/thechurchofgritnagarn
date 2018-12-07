@@ -16,5 +16,6 @@ Hinduism<br>
 Christianity<br>
 Buddhism<br>
 Judaism<br>
+Jingoism<br>
 
 URL: https://kaikingman.github.io/thechurchofgritnagarn/
