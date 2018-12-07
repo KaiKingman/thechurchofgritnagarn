@@ -13,6 +13,7 @@ Jewism<br>
 <br>
 Bad Religions:<br>
 Pastafarianism (spaghet) <br>
+Church of lord Helix <br>
 Hinduism<br>
 Christianity<br>
 Buddhism<br>
